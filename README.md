@@ -1,1 +1,1 @@
-https://signate.jp/competitions/182/submissions
+https://signate.jp/competitions/182
